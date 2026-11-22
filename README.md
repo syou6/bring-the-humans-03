@@ -8,7 +8,7 @@ An entry for the make.fun bounty [bring-the-humans-03](https://make.fun/bounty/b
 
 ## The video
 
-https://www.tiktok.com/@rennai1890/video/7710935583975116033
+https://www.tiktok.com/@rennai1890/video/7710936816215395636
 
 Its caption carries the bounty's line word for word and the play code `makefun-steeple-almond-pastry`. Places go by the video's TikTok play count at the deadline (2026-11-25 04:00 JST).
 
